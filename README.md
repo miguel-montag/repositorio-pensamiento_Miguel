@@ -1,1 +1,0 @@
-# repositorio-pensamiento_Miguel
